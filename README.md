@@ -1,3 +1,1 @@
-SPINNING PENCIL
-open html on your pc
-enjoy !
+SPINNING PENCIL, ENJOY!
